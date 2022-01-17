@@ -1,1 +1,7 @@
 # did-steven-hawking-ever-smoke-a-joint
+
+# steven hawking
+https://en.wikipedia.org/wiki/Stephen_Hawking
+
+
+https://en.wikipedia.org/wiki/NMDA_receptor
